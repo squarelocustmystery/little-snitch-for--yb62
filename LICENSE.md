@@ -1,4 +1,4 @@
-# 
+# KeePassXC for macOS ultimate Tool: phishing-detection & password-sharing is the best KeePassXC for macOS tool, featuring phishing-detection and password-sharing. Secure,
 
 
 
